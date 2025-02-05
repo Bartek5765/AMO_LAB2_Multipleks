@@ -1,2 +1,1 @@
-# AMO_LAB2
-Zadanie z lab 2 - multipleks
+https://drive.google.com/file/d/1sFZ1CLGkbQe2SL2wAKC8hAKxu2Vn3OBG/view
